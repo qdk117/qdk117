@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @qdk117
+- 👀 I’m interested in tanks.
+- 🌱 I’m currently learning how to work.
+- 📫 How to reach me ... you don't
